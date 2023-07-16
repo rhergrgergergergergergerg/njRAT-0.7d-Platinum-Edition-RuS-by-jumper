@@ -1,0 +1,1 @@
+# njRAT-0.7d-Platinum-Edition-RuS-by-jumper
